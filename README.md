@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **amanpratapsingh1440@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1nSuGz9xHWmxZoyyoknpHsa6lhYPYkgub/view?usp=drive_link](https://drive.google.com/file/d/1nSuGz9xHWmxZoyyoknpHsa6lhYPYkgub/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1nSuGz9xHWmxZoyyoknpHsa6lhYPYkgub/view?usp=drive_link](https://drive.google.com/file/d/1Up93YPkUOXMcIaHl8_UtKXpvTSwwt6wM/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">

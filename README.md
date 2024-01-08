@@ -5,7 +5,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=amanpratap14&label=Profile%20views&color=0e75b6&style=flat" alt="amanpratap14" /> </p>
 
-- 🌱 I’m currently learning **ASP.Net, Nodejs**
+- 🌱 I’m currently learning **bash scripting, Nodejs and Python**
 
 - 📫 How to reach me **amanpratapsingh1440@gmail.com**
 
